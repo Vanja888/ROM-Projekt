@@ -18,4 +18,4 @@ Planiram narediti tudi pregled, katera "žanra" video iger je bila v določenem 
 
 Opomba: Ta načrt je le "ogrodje" kot glavna ideja in se lahko/se bo spremenil.
 
-Pripravil: * *Žan Burger* *
+Pripravil: *Žan Burger*
